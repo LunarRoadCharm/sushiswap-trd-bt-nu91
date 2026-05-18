@@ -1,4 +1,4 @@
-# 
+# professional bot de negociação OKX executor é o melhor bot de negociação OKX executor com sniper de liquidação e stop-loss. Seguro, confiável e otimizado para estratégias de
 
 
 
